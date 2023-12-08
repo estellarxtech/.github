@@ -14,11 +14,11 @@ In the ever-evolving world of technology, staying ahead of the curve is key. Our
 
 ## Commitment to Quality and Innovation
 
-Quality is the cornerstone of everything we do at EstellarxTecnologia. We believe that the best software is born from a blend of innovative thinking, technical excellence, and a deep understanding of client needs. Our approach is holistic – focusing on usability, performance, and scalability, ensuring that our solutions not only meet but exceed expectations.
+Quality is the cornerstone of everything we do at EstellarxTecnologia. We believe that the best software is born from a blend of innovative thinking, technical excellence, and a deep understanding of client needs. Our approach is holistic - focusing on usability, performance, and scalability, ensuring that our solutions not only meet but exceed expectations.
 
 ## Empowering Businesses with Cutting-Edge Tech
 
-Our mission is to empower businesses by unlocking the potential of advanced technologies. We stay abreast of the latest trends – from artificial intelligence and machine learning to blockchain and IoT – integrating them into our solutions where they add real value. By choosing EstellarxTecnologia, you're not just getting a software vendor; you're gaining a partner committed to driving your success in the digital era.
+Our mission is to empower businesses by unlocking the potential of advanced technologies. We stay abreast of the latest trends - from artificial intelligence and machine learning to blockchain and IoT - integrating them into our solutions where they add real value. By choosing EstellarxTecnologia, you're not just getting a software vendor; you're gaining a partner committed to driving your success in the digital era.
 
 ## Join Us on a Journey to Technological Excellence
 
